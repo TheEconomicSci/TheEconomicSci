@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheEconomicSci
+- 👋 Hi, I’m @utkarsh
 - 👀 I’m interested in economics ,fintech and marxism-leninism
 - 🌱 I’m currently enrolled bachelor of business administration
 - 💞️ I’m looking to collaborate on probably any basic thing
